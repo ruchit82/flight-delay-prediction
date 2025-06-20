@@ -97,6 +97,7 @@ This model can be used to:
 🎓 Bachelor's in Data Science & Business Analytics  
 💼 Aspiring Data Analyst 
 📫 ruchitsanap00@gmail.com 
+
 🔗 [LinkedIn Profile](www.linkedin.com/in/ruchit-sanap-6a85ba258)
 
 
