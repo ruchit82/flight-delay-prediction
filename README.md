@@ -98,7 +98,7 @@ This model can be used to:
 💼 Aspiring Data Analyst 
 📫 ruchitsanap00@gmail.com 
 
-🔗 [LinkedIn Profile](www.linkedin.com/in/ruchit-sanap-6a85ba258)
+🔗 LinkedIn Profile- www.linkedin.com/in/ruchit-sanap-6a85ba258
 
 
 
